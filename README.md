@@ -63,7 +63,9 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 –  [@luhkliet](https://github.com/luhkliet) is chris redfield (resident evil) 🦇
 
-–  [futuristic-maniac](https://github.com/futuristic-maniac) is nagito komaeda (danganronpa) 🪱
+–  [@futuristic-maniac](https://github.com/futuristic-maniac) is nagito komaeda (danganronpa) 🪱
+
+– [@mydigitalescape](https://github.com/mydigitalescape) is robert chase (house md) 🍄
 
  <div align="center">
 
