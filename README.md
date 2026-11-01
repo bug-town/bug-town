@@ -16,6 +16,7 @@
 
  i will be closing the requests when i get a significant amount of people signing the atabook, and opening again when i finish it. ![](https://files.catbox.moe/687ub3.webp) you have the right to send the message twice if i didn't see it before, but please dont spam! 
  
+ ![](https://file.garden/audlqd-vsy--Bkws/ezgif-893cb67606c98dc6.gif) 
 you will see me around with this dandy ! tell me if you need anything :o) 
 
 <div align="center">
