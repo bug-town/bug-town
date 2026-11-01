@@ -41,6 +41,7 @@
  characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
  
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
+ 
 – [@denguemon](https://github.com/denguemon) is shin joong hyun (miin 1975) 🥨
 
  <div align="center">
