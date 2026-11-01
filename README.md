@@ -20,25 +20,27 @@
 
  categories  (i accept suggestions) ⠀:
  
- hilda's oomfs (´⌣`ʃƪ)⠀: 
+ 🐞⠀hilda's oomfs (´⌣`ʃƪ)⠀: 
  
  [@denguemon](https://github.com/denguemon) 
  
- well-known / popular players (300+ to claim) (︶.̮︶✽) :
+⭐⠀well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
  [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) 
  
- always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
+ 💤⠀always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
  
- the prettiest skins ever⠀( ^_^)／⠀:
+ 🌿⠀the prettiest skins ever⠀( ^_^)／⠀:
  
- cute and kind people ⠀( •́ .̫ •̀ )⠀:
+ 🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
+
+ [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) 
  
- whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
+ 🦄⠀whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
 
  [@dearvoidstar](https://github.com/dearvoidstar)⠀[meowpilled](https://github.com/meowpilled) 
  
- characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
+ 🌳⠀characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
  
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
  
