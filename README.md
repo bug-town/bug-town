@@ -20,14 +20,14 @@
  
  hilda's oomfs (´⌣`ʃƪ)⠀: 
  
- well-known / popular players (300+ to claim) :
+ well-known / popular players (300+ to claim) (︶.̮︶✽) :
  
- always afk / offtab :
+ always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
  
- the prettiest skins ever :
+ the prettiest skins ever⠀( ^_^)／⠀:
  
- cute and kind people :
+ cute and kind people ( •́ .̫ •̀ )⠀:
  
- whimsical people :
+ whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
  
- characters / medias : 
+ characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
