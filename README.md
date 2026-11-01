@@ -26,7 +26,7 @@
  
  well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
- [@denguemon](https://github.com/denguemon) (of course) 
+ [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) 
  
  always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
  
@@ -43,6 +43,8 @@
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
  
 – [@denguemon](https://github.com/denguemon) is shin joong hyun (miin 1975) 🥨
+
+– [@01-800-papu](https://github.com/01-800-papu) is theobald the bird (mcyt) 🌱
 
  <div align="center">
 
