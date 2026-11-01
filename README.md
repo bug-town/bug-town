@@ -67,6 +67,8 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 – [@mydigitalescape](https://github.com/mydigitalescape) is robert chase (house md) 🍄
 
+– [@god-of-stories](https://github.com/god-of-stories) is loki laufeyson (marvel) 🌼
+
  <div align="center">
 
  ![](https://file.garden/audlqd-vsy--Bkws/Tumblr_l_341406418506531.gif) 
