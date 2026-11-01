@@ -27,11 +27,11 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐞⠀hilda's oomfs (´⌣`ʃƪ)⠀: 
  
- [@eddisode](https://github.com/eddisode) [@denguemon](https://github.com/denguemon) 
+ [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
  
 ⭐⠀well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
- [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) 
+ [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) [@OlgaSinxer](https://github.com/OlgaSinxer) 
  
  💤⠀always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
  
@@ -39,7 +39,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
 
- [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) 
+ [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) [@NikaMokochi](https://github.com/NikaMokochi) [@HerWordsKill](https://github.com/HerWordsKill) [@OlgaSinxer](https://github.com/OlgaSinxer) 
  
  🦄⠀whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
 
@@ -60,6 +60,10 @@ you will see me around with this dandy ! tell me if you need anything :o)
 – [@dearvoidstar](https://github.com/dearvoidstar) is know lee / noli (forsaken) 🐛
 
 – [@eddisode](https://github.com/eddisode) is jake sterling (tmf) 🎤
+
+–  [@luhkliet](https://github.com/luhkliet) is chris redfield (resident evil) 🦇
+
+–  [futuristic-maniac](https://github.com/futuristic-maniac) is nagito komaeda (danganronpa) 🪱
 
  <div align="center">
 
