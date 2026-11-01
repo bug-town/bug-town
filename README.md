@@ -16,7 +16,7 @@
 
  </p>
 
- categories : (i accept suggestions) 
+ categories  (i accept suggestions) ⠀:
  
  hilda's oomfs (´⌣`ʃƪ)⠀: 
  
@@ -26,8 +26,12 @@
  
  the prettiest skins ever⠀( ^_^)／⠀:
  
- cute and kind people ( •́ .̫ •̀ )⠀:
+ cute and kind people ⠀( •́ .̫ •̀ )⠀:
  
  whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
+
+ [@dearvoidstar](https://github.com/dearvoidstar)⠀[meowpilled](https://github.com/meowpilled) 
  
  characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
+ 
+ – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
