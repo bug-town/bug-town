@@ -12,5 +12,22 @@
 
  i will be closing the requests when i get a significant amount of people signing the atabook, and opening again when i finish it. ![](https://files.catbox.moe/687ub3.webp) you have the right to send the message twice if i didn't see it before, but please dont spam! ^_^
 
+<div align="center">
 
  </p>
+
+ categories : (i accept suggestions) 
+ 
+ hilda's oomfs (´⌣`ʃƪ)⠀: 
+ 
+ well-known / popular players (300+ to claim) :
+ 
+ always afk / offtab :
+ 
+ the prettiest skins ever :
+ 
+ cute and kind people :
+ 
+ whimsical people :
+ 
+ characters / medias : 
