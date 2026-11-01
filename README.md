@@ -27,7 +27,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐞⠀hilda's oomfs (´⌣`ʃƪ)⠀: 
  
- [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
+ [@riickgrimes](https://github.com/riickgrimes)   [@kasane-nina](https://github.com/kasane-nina)  [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
  
 ⭐⠀well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
@@ -46,6 +46,12 @@ you will see me around with this dandy ! tell me if you need anything :o)
  [@dearvoidstar](https://github.com/dearvoidstar)⠀[meowpilled](https://github.com/meowpilled) 
  
  🌳⠀characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
+
+ – [@riickgrimes](https://github.com/riickgrimes) is q!cellbit (QSMP) 🦉
+
+ – [@kasane-nina](https://github.com/kasane-nina) is noelle (deltarune) 🦌
+
+– [@dandypilled](https://github.com/dandypilled) is dandy (dandys world) 🌈
  
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
  
