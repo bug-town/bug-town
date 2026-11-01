@@ -1,12 +1,8 @@
-<div align="center"> 
-  
-  ![](https://files.catbox.moe/samudn.gifv) 
-  </p>
 
 
 <div align="center">
 
-![](https://files.catbox.moe/yjnd3a.jpg) welcome to bug-town, friend! nominate yourself and your friends as any media you like! :o) created by @livingforest (bmf!) 
+![](https://files.catbox.moe/yjnd3a.jpg) welcome to bug-town, friend! nominate yourself and your friends as any media you like! :o) created by [@livingforest](https://github.com/livingforest) (bmf!) 
 
  we do not accept loli/shotacons, tcc or anything related. please tell me if someone added on this list is problematic. ![](https://files.catbox.moe/11wlae.gif) 
 
