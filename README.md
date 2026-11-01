@@ -43,7 +43,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🦄⠀whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
 
- [@dearvoidstar](https://github.com/dearvoidstar)⠀[meowpilled](https://github.com/meowpilled) 
+ [@dearvoidstar](https://github.com/dearvoidstar)⠀[meowpilled](https://github.com/meowpilled) [@DocHale](https://github.com/DocHale) 
  
  🌳⠀characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
 
@@ -87,6 +87,10 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 – [@rydenyuri](https://github.com/rydenyuri) is ryan ross
 (panic! at the disco) 🪴
+
+– [@planetlordd](https://github.com/planetlordd) is planetlord (lifesteal smp) 🦜
+
+– [@angelicr0t](https://github.com/angelicr0t) is nurse harrow (deadlock) 🐼
 
  <div align="center">
 
