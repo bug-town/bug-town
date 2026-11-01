@@ -50,7 +50,7 @@
 
 – [@neverwanted2dance](https://github.com/neverwanted2dance) is vee (dandy's world) 📺
 
-– [@suntannestepbrother](https://github.com/suntannestepbrother) is BMO (adventure time) ☘️
+– [@suntannedstepbrothr](https://github.com/suntannedstepbrothr) is BMO (adventure time) ☘️
 
  <div align="center">
 
