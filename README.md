@@ -22,7 +22,11 @@
  
  hilda's oomfs (´⌣`ʃƪ)⠀: 
  
+ [@denguemon](https://github.com/denguemon) 
+ 
  well-known / popular players (300+ to claim) (︶.̮︶✽) :
+
+ [@denguemon](https://github.com/denguemon) (of course) 
  
  always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
  
@@ -37,7 +41,7 @@
  characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
  
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
-
+– [@denguemon](https://github.com/denguemon) is shin joong hyun (miin 1975) 🥨
 
  <div align="center">
 
