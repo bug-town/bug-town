@@ -1,4 +1,6 @@
- 
+<div align="center">
+
+![](https://files.catbox.moe/3hn64d.gif) 
 
 <div align="center">
 
@@ -35,3 +37,8 @@
  characters / medias ⠀(ﾉ･ｪ･)ﾉ⠀: 
  
  – [@JEVERUS](https://github.com/JEVERUS) is  slasher  (forsaken)  🍀
+
+
+ <div align="center">
+
+ ![](https://files.catbox.moe/2h5vcp.gif) 
