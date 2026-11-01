@@ -39,7 +39,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
 
- [@luhkliet](https://github.com/luhkliet) [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) [@NikaMokochi](https://github.com/NikaMokochi) [@HerWordsKill](https://github.com/HerWordsKill) [@OlgaSinxer](https://github.com/OlgaSinxer) 
+ [@luhkliet](https://github.com/luhkliet) [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) [@NikaMokochi](https://github.com/NikaMokochi) [@HerWordsKill](https://github.com/HerWordsKill) [@OlgaSinxer](https://github.com/OlgaSinxer) [@skippadonn](https://github.com/skippadonn) 
  
  🦄⠀whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
 
@@ -76,6 +76,17 @@ you will see me around with this dandy ! tell me if you need anything :o)
 – [@god-of-stories](https://github.com/god-of-stories) is loki laufeyson (marvel) 🌼
 
 – [@tellthatmick](https://github.com/tellthatmick) is leon kennedy (resident evil) 🐺
+
+– [@vascoscoscos](https://github.com/vascoscoscos) is ji9star (gmnd) 🐌
+
+– [@andreslopper](https://github.com/andreslopper) is opera (mairimashita iruma kun) 🐭
+
+– [@starfollower](https://github.com/starfollower) is rocket (phighting) 🚀
+
+– [@lonesomestreet](https://github.com/lonesomestreet) is graham coxon (blur) 🦋
+
+– [@rydenyuri](https://github.com/rydenyuri) is ryan ross
+(panic! at the disco) 🪴
 
  <div align="center">
 
