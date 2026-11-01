@@ -1,12 +1,10 @@
 
 
-<div align="center">
-
-![](https://files.catbox.moe/3hn64d.gif) 
+ 
 
 <div align="center">
 
-![](https://files.catbox.moe/yiyx0b.gif) 
+![](https://file.garden/audlqd-vsy--Bkws/Tumblr_l_341408276473874.gif)
 
 <div align="center">
  
@@ -65,5 +63,5 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
  <div align="center">
 
- ![](https://files.catbox.moe/2h5vcp.gif) 
+ ![](https://file.garden/audlqd-vsy--Bkws/Tumblr_l_341406418506531.gif) 
 
