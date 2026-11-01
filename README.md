@@ -94,6 +94,13 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 – [@needyourbIood](https://github.com/needyourbIood) is   is ryland grace (project hail mary) 🐜
 
+– [@Worm-Farmer](https://github.com/Worm-Farmer) is pink in among us series (rodamrix) 💖
+
+– [@wolfcutiee](https://github.com/wolfcutiee) is frankie (knights of guinevere) 🐴
+
+– [@D3V0TION](https://github.com/D3V0TION) is ivan (bad things) 🐶
+
+
  <div align="center">
 
  ![](https://file.garden/audlqd-vsy--Bkws/Tumblr_l_341406418506531.gif) 
