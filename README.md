@@ -27,7 +27,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐞⠀hilda's oomfs (´⌣`ʃƪ)⠀: 
  
- [@rickgriimes](https://github.com/riickgrimes)   [@kasane-nina](https://github.com/kasane-nina)  [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
+ [@rickgriimes](https://github.com/rickgriimes)   [@kasane-nina](https://github.com/kasane-nina)  [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
  
 ⭐⠀well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
