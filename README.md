@@ -48,6 +48,8 @@
 
 – [@01-800-papu](https://github.com/01-800-papu) is theobald the bird (mcyt) 🌱
 
+– [@neverwanted2dance](https://github.com/neverwanted2dance) is vee (dandy's world) 📺
+
  <div align="center">
 
  ![](https://files.catbox.moe/2h5vcp.gif) 
