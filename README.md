@@ -39,7 +39,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
 
- [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) [@NikaMokochi](https://github.com/NikaMokochi) [@HerWordsKill](https://github.com/HerWordsKill) [@OlgaSinxer](https://github.com/OlgaSinxer) 
+ [@luhkliet](https://github.com/luhkliet) [@JEVERUS](https://github.com/JEVERUS)  [@meowpilled](https://github.com/meowpilled) [@NikaMokochi](https://github.com/NikaMokochi) [@HerWordsKill](https://github.com/HerWordsKill) [@OlgaSinxer](https://github.com/OlgaSinxer) 
  
  🦄⠀whimsical people⠀(ٛɲ˃ ˑ̣̮ ˂ٛɳ) :
 
@@ -68,6 +68,8 @@ you will see me around with this dandy ! tell me if you need anything :o)
 – [@mydigitalescape](https://github.com/mydigitalescape) is robert chase (house md) 🍄
 
 – [@god-of-stories](https://github.com/god-of-stories) is loki laufeyson (marvel) 🌼
+
+– [@tellthatmick](https://github.com/tellthatmick) is leon kennedy (resident evil) 🐺
 
  <div align="center">
 
