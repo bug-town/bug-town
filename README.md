@@ -52,6 +52,8 @@
 
 – [@suntannedstepbrothr](https://github.com/suntannedstepbrothr) is BMO (adventure time) ☘️
 
+– [@dearvoidstar](https://github.com/dearvoidstar) is know lee / noli (forsaken) 🐛
+
  <div align="center">
 
  ![](https://files.catbox.moe/2h5vcp.gif) 
