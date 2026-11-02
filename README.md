@@ -92,7 +92,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 –  ⠀𓈒⠀⠀[@angelicr0t](https://github.com/angelicr0t) is nurse harrow (deadlock) 🐼
 
-–  ⠀𓈒⠀⠀[@needyourbIood](https://github.com/needyourbIood) is   is ryland grace (project hail mary) 🐜
+–  ⠀𓈒⠀⠀[@needyourbIood](https://github.com/needyourbIood) is   is ryland grace (project hail mary) 🕷
 
 –  ⠀𓈒⠀⠀[@Worm-Farmer](https://github.com/Worm-Farmer) is pink in among us series (rodamrix) 💖
 
@@ -100,7 +100,20 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 –  ⠀𓈒⠀⠀[@D3V0TION](https://github.com/D3V0TION) is ivan (bad things) 🐶
 
-–  ⠀𓈒⠀⠀[@](https://github.com/) is 
+–  ⠀𓈒⠀⠀[@Weepinglilies](https://github.com/Weepinglilies) is medkit (phighting) 🩹
+
+–  ⠀𓈒⠀⠀[@starrbeery](https://github.com/starrbeery) is sherif truman (twin peaks) 🐏
+
+–  ⠀𓈒⠀⠀[@Abaddon-Freeling](https://github.com/Abaddon-Freeling) is abaddon (haunted hotel) 🩸
+
+–  ⠀𓈒⠀⠀[@KayleighJudas](https://github.com/KayleighJudas) is viktor (arcane league of legends) 📜
+
+–  ⠀𓈒⠀⠀[@spam-tune](https://github.com/spam-tune) is antenna (deltarune) 🐜
+
+–  ⠀𓈒⠀⠀[@duckseatbreads](https://github.com/duckseatbreads) is john jones (DC) 🦅
+
+–  ⠀𓈒⠀⠀[@FORENSIC-AUTOPSY](https://github.com/FORENSIC-AUTOPSY) is boothill (honkai star rail) 🌹
+
 
  <div align="center">
 
