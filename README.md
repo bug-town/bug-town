@@ -27,15 +27,17 @@ you will see me around with this dandy ! tell me if you need anything :o)
  
  🐞⠀hilda's oomfs (´⌣`ʃƪ)⠀: 
  
- [@rickgriimes](https://github.com/rickgriimes)   [@kasane-nina](https://github.com/kasane-nina)  [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon) 
+ [@rickgriimes](https://github.com/rickgriimes)   [@kasane-nina](https://github.com/kasane-nina)  [@eddisode](https://github.com/eddisode)  [@luhkliet](https://github.com/luhkliet) [@denguemon](https://github.com/denguemon)  [@spam-tune](https://github.com/spam-tune) 
  
 ⭐⠀well-known / popular players (300+ to claim) (︶.̮︶✽) :
 
- [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) [@OlgaSinxer](https://github.com/OlgaSinxer) 
+ [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) [@OlgaSinxer](https://github.com/OlgaSinxer) [@burningsins](https://github.com/burningsins)  [@spam-tune](https://github.com/spam-tune) 
  
  💤⠀always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
+ [@Weepinglilies](https://github.com/Weepinglilies)
  
  🌿⠀the prettiest skins ever⠀( ^_^)／⠀:
+ [@spam-tune](https://github.com/spam-tune) [@Weepinglilies](https://github.com/Weepinglilies)
  
  🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
 
@@ -114,6 +116,7 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
 –  ⠀𓈒⠀⠀[@FORENSIC-AUTOPSY](https://github.com/FORENSIC-AUTOPSY) is boothill (honkai star rail) 🌹
 
+–  ⠀𓈒⠀⠀[@sasukyo](https://github.com/sasukyo) is sasuke (naruto) 🐈‍⬛
 
  <div align="center">
 
