@@ -120,6 +120,17 @@ you will see me around with this dandy ! tell me if you need anything :o)
 
   ⠀𓈒⠀⠀[@sasukyo](https://github.com/sasukyo) is sasuke (naruto) ꕀ 🐦‍⬛ ⏜︵⠀
 
+  –   𓈒  [@poisonedritual](https://github.com/poisonedritual) is twotime (forsaken) ꕀ 🍁 ⏜︵
+
+  –   𓈒  [@OlgaSinxer](https://github.com/OlgaSinxer) is katebakes430 (garn47) ꕀ 🦊 ⏜︵
+
+  –   𓈒  [@V0RTlGERN](https://github.com/V0RTlGERN) is vortigern (fate/grand order) ꕀ ☁ ⏜︵
+
+  –   𓈒  [@Simonzky](https://github.com/Simonzky) is sp7 (enneagram) ꕀ 🦝 ⏜︵
+
+  –   𓈒  [@bigguykoi](https://github.com/bigguykoi) is tony stark (marvel) ꕀ 🌿 ⏜︵
+
+
  <div align="center">
 
  ![](https://file.garden/audlqd-vsy--Bkws/Tumblr_l_341406418506531.gif) 
