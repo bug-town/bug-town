@@ -34,9 +34,11 @@ you will see me around with this dandy ! tell me if you need anything :o)
  [@denguemon](https://github.com/denguemon) (of course) [@01-800-papu](https://github.com/01-800-papu) [@OlgaSinxer](https://github.com/OlgaSinxer) [@burningsins](https://github.com/burningsins)  [@spam-tune](https://github.com/spam-tune) 
  
  💤⠀always afk / offtab ⠀2( ᵘ ᵕ ᵘ ⁎) ⠀:
+ 
  [@Weepinglilies](https://github.com/Weepinglilies)
  
  🌿⠀the prettiest skins ever⠀( ^_^)／⠀:
+ 
  [@spam-tune](https://github.com/spam-tune) [@Weepinglilies](https://github.com/Weepinglilies)
  
  🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
